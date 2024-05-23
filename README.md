@@ -1,6 +1,6 @@
  
 <center>
-   <img src="https://media.discordapp.net/attachments/706801955845963799/1216463559689764948/Untitled331_20240310211146.png?ex=662e9f79&is=661c2a79&hm=44bb415f54b3335c434cac354c9b430b24dcab76789b0a07b8641f0191e7b251&=&format=webp&quality=lossless&width=500&height=500">
+   <img src="https://77eerie.carrd.co/assets/images/gallery01/1349ccbb.gif?v=e631fdd0">
    </center>
 <p align="center">
   
